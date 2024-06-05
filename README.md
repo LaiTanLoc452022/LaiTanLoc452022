@@ -1,5 +1,7 @@
 ## Hi there 👋
-![Uploading AntonyAntonySantosGIF.gif…]()
+
+![AntonyAntonySantosGIF](https://github.com/LaiTanLoc452022/LaiTanLoc452022/assets/103021684/56a943da-6c8e-4f56-9a13-51855049bc7f)
+
 
 <!--
 **LaiTanLoc452022/LaiTanLoc452022** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
