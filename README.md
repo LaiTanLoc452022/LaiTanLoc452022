@@ -1,4 +1,6 @@
-## Hi there 👋
+![ShreddedRockGIF](https://github.com/LaiTanLoc452022/LaiTanLoc452022/assets/103021684/b651c707-d0a4-4853-a246-f37d9ff81b9b)## Hi there 👋
+![NationalComingOutDayPrideGIF](https://github.com/LaiTanLoc452022/LaiTanLoc452022/assets/103021684/6a5b2985-57d3-4fff-af40-98abf753a952)
+
 
 <!--
 **LaiTanLoc452022/LaiTanLoc452022** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
