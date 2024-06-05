@@ -1,8 +1,6 @@
 ## Hi there 👋
 ![Uploading AntonyAntonySantosGIF.gif…]()
 
-
-
 <!--
 **LaiTanLoc452022/LaiTanLoc452022** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
